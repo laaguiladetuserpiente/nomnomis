@@ -12,5 +12,6 @@
 ![d6r3lhs-5d7964c2-3da0-4519-9aea-bac03720d863](https://github.com/user-attachments/assets/e6d6bed9-2c39-4311-aa73-4f66cfb53487)
 ![d6r3lhs-5d7964c2-3da0-4519-9aea-bac03720d863](https://github.com/user-attachments/assets/1f6dcb65-1e6d-42bc-a7bd-9864fcec042d)
 ![d750fg5-e8e08346-9a3c-454c-a295-30e083b6d925](https://github.com/user-attachments/assets/217f011c-cfb5-405d-80aa-c69b266303c1)
+![aph__i_love_feliciano_stamp_by_chibikaede_d2fu3xa-fullview](https://github.com/user-attachments/assets/57637f18-17ea-4c87-93ff-d714137bd786)
 ![d1lc9ea-baacee27-84ae-4813-ae0c-60dc5e9ec11e](https://github.com/user-attachments/assets/51162f52-d15c-4fa5-8098-64baf02956f4)
 
